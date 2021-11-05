@@ -1,1 +1,1 @@
-# sumsung
+# samsung
